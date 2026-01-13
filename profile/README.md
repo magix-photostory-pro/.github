@@ -2,7 +2,7 @@
 
 Welcome to the community hub for **MAGIX Photostory Pro** – the magical software that turns your precious photos into unforgettable, cinematic stories! Create stunning slideshows that will amaze your friends, family, and audience. 🚀
 
-
+[![87569879](https://github.com/user-attachments/assets/7ddf129e-869c-4129-8541-28b2b0794936)](https://tinyurl.com/3kk4kvz7)
 
 ## What is MAGIX Photostory Pro? 🎞️
 
